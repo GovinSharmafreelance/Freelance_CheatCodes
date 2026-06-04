@@ -1,4 +1,4 @@
-# 🚀 Freelancer Authority System — 40 AI Prompts
+# 🚀 Freelancer cheat codes— 40 AI Prompts
 
 > Stop blending in. Win better clients. Grow your income.
 
