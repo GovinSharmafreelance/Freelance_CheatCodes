@@ -90,7 +90,7 @@
 
 👉 [Download on Gumroad](https://govindsharma7.gumroad.com/l/Freelanceprompt)
 
-🌐 [View Full Landing Page](https://freelance-cheat-codes.netlify.app)
+🌐 [View Full Landing Page](http://freelancer-cheat-codes.netlify.app)
 
 ---
 
